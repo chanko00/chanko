@@ -1,3 +1,3 @@
-# chako Abe
+# chanko Abe
 すごい
 ありがとう
